@@ -1,3 +1,1 @@
-## More informations
-
 
